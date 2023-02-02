@@ -1,0 +1,6 @@
+Al llegar la octava noche, procedí con mayor cautela que de costumbre al abrir la puerta. El minutero de un reloj se mueve con más rapidez de lo que se movía mi mano. Jamás, antes de aquella noche, había sentido el alcance de mis facultades, de mi sagacidad. Apenas lograba contener mi impresión de triunfo. 
+¡Pensar que estaba ahí, abriendo poco a poco la puerta, y que él ni siquiera soñaba con mis secretas intenciones o pensamientos! 
+Me reí entre dientes ante esta idea, y quizá me oyó, porque lo sentí moverse repentinamente en la cama, como si se sobresaltara. 
+Ustedes pensarán que me eché hacia atrás… pero no. Su cuarto estaba tan negro como la pez, ya que el viejo cerraba completamente las persianas por miedo a los ladrones; yo sabía que le era imposible distinguir la abertura de la puerta, y seguí empujando suavemente, suavemente.
+Había ya pasado la cabeza y me disponía a abrir la linterna, cuando mi pulgar resbaló en el cierre metálico y el viejo se enderezó en el lecho, gritando:
+-¿Quién está ahí?
